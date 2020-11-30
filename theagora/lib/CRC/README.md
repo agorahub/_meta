@@ -32,7 +32,7 @@
 ### Ep10. Against Forced Disappearance
 2020-11-05
 ## Cp11. 第十一回：亂世柔拳
-### Ep11. 
+### Ep11. Pliancy Under Tribulation
 2020-11-14
 ## Cp12. 第十二回：魔高一丈
 ### Ep12. 
