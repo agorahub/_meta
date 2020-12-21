@@ -35,7 +35,7 @@
 ### Ep11. Pliancy Under Tribulation
 2020-11-14
 ## Cp12. 第十二回：魔高一丈
-### Ep12. 
+### Ep12. Evolution of Evil
 2020-11-21
 
 ---
