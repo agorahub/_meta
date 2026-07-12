@@ -1,2 +1,3 @@
-# PEN Zero
-Temporary directory for the [Agora PEN Project](https://github.com/agorahub/AIPs/projects/1) test.
+# PEN⓪
+
+Snapshots of the [Republic of Agora](https://agorahub.github.io/pen0) by the [Agora Newsroom](https://github.com/orgs/agorahub/projects/2).
